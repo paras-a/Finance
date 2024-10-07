@@ -1,1 +1,0 @@
-This book is an ambitious project of mine. I am currently working on it in my spare time. Many changes and edits are being made. My attempt is to put up monthly updates. Chapters and information are subject to change. May contain errors.
